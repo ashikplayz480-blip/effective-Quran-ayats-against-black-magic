@@ -166,7 +166,7 @@ A comprehensive, step-by-step guide to performing authentic Ruqyah (spiritual he
 
 Listen to authentic Ruqyah recitations for healing, protection, and spiritual strengthening:
 
-🔗 **[📁 Access Ruqyah Audio Files](#)** *(Link to be added)*
+[**📁 Access Ruqyah Audio Files**](https://drive.google.com/drive/folders/1jf5oMFX4_uuNPylIDpu_-Pu1yL3KZusP?usp=sharing)
 
 **✨ Recommended for:**
 - Daily listening during morning/evening adhkar
@@ -213,5 +213,3 @@ This resource is free for personal and educational use.
 &gt; If symptoms persist or worsen, consult a knowledgeable and trustworthy Raqi who follows the Quran and Sunnah. Never compromise your Aqeedah in search of a cure—true healing comes from Allah alone.
 
 ---
-
-*Last Updated: April 2026*
